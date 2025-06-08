@@ -223,9 +223,9 @@
             
             <div class="retro-decoration">♡ ♡ ♡ ♡ ♡ ♡ ♡ ♡ ♡ ♡ ♡ ♡ ♡ ♡ ♡</div>
             
-            <p>Meu amor,</p>
+            <p>Minha querida Bi</p>
             
-            <p>Minha querida Bi, escrevo esta carta de ultima hora pois somos farinha do mesmo saco, e dessa vez não poderia ser diferente, quero apenas diser que te amo incondicionalmente .</p>
+            <p> Escrevo esta carta de ultima hora pois somos farinha do mesmo saco, e dessa vez não poderia ser diferente, quero apenas diser que te amo incondicionalmente .</p>
             
             <p>Cada dia em sua copahia é um dia especial, você foi pra mim um presente que Deus me prometeu a muito tempo, antes mesmo de eu me entender por gente já tinha o desejo no meu coração de ter uma filha como você.</p>
             
